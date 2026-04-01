@@ -9,7 +9,7 @@
 
 > $\color{Magenta}{\textsf{Wazzup !!}}$
 > $\color{Magenta}{\textsf{Subspace ; They / Them + Neos}}$
-> <sup> i occaizionally uze 'z' instead of 's' ok? ok,
+> <sup> i occaizionally uze 'z' instead of 's' ok? ok,<\sup>
 
 
 
