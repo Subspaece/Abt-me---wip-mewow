@@ -1,4 +1,4 @@
-<img width="2048" height="246" alt="tumblr_763c968f3c96eed52828dc805e445337_23851872_2048" src="https://github.com/user-attachments/assets/332761b9-6d1f-4e64-be59-2c837cb2ada8" />
+<img width="2048" height="281" alt="tumblr_84110321cd1ea3d6f78003ca96e1658e_bb27c989_2048" src="https://github.com/user-attachments/assets/a27f5b33-eb8d-4a6f-804b-d0dc17472592" />
 
 
 # $\color{Magenta}{\textsf{Subspace}}$
@@ -7,6 +7,6 @@
 
 
 
-<img width="2048" height="246" alt="tumblr_c3dbf61eb305f589861b3ff9648d2965_ebb1e40c_2048" src="https://github.com/user-attachments/assets/d0012ec8-27c4-47ec-bb67-17da71036e7d" />
+<img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
 <sup> coding all took like ages and i will most likely forget after im done... </sup>
 
