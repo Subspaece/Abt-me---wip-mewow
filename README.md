@@ -8,14 +8,16 @@
 
 
 > $\color{Magenta}{\textsf{Wazzup !!}}$
-> $\color{Magenta}{\textsf{Subspace ; They / Them + Neos}}$
+> $\color{Magenta}{\textsf{im Subspace ; They / Them + Neos}}$
 
 
-> $\color{Magenta}{\textsf{i occazionally uze 'z' inztead of 's' ok? ok, idk itz cool}}$
+> $\color{Magenta}{\textsf{i occazionally uze 'z' inztead of 's' ok? ok, itz hella cool}}$
 
 
-> $\color{Magenta}{\textsf{im kiiiinda like zource, but i WILL NOT int with medkit doublez, unlezz we're friends, then its good. thumbs up}}$
+> $\color{Magenta}{\textsf{im kiiiinda like zource, but kinda not? idk, but i WILL NOT int with medkit doublez, unlezz we're friends, then its good. thumbs up}}$
 
+
+> $\color{Magenta}{\textsf{I alzo reallyreally like muzicalz, my favouritez r: Legally blonde, In the heightz [2005 verzion, duh], The zizter act!!11!!1}}$
 
 
 
