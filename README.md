@@ -8,11 +8,12 @@
 
 
 > $\color{Magenta}{\textsf{Wazzup !!}}$
-> $\color{Magenta}{\textsf{wip}}$
+> $\color{Magenta}{\textsf{Subspace ; They / Them + Neos}}$
+> <sup> i occaizionally uze 'z' instead of 's' ok? ok,
 
 
 
 
 <img width="2048" height="141" alt="tumblr_a1bffbc6a195e156acf58b76134997f2_08667e6d_2048" src="https://github.com/user-attachments/assets/64c3c232-0a89-44ac-99c9-95968c1364b1" />
-<sup> Being able to change the colour of the text too WAAY too long that i forgot </sup>
+<sup> uhh dont azk how i did the coloured text, i forgot how i did it . . . </sup>
 
