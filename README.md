@@ -1,9 +1,10 @@
-<img width="2048" height="330" alt="tumblr_b921c466430f7aa6f4509d516769f345_89652894_2048" src="https://github.com/user-attachments/assets/ff20f8a3-74ab-414e-bd9c-8e7c0ada3714" />
+<img width="1920" height="897" alt="tumblr_6b81dcc67c296ce0a51049d3e145d2da_82d47f75_2048" src="https://github.com/user-attachments/assets/d8d542c2-d746-4aaa-b335-6341462fba38" />
 
 
 ###
 idc if im not like source i dont rlly like it anyway lalalalalal
 
 
-<img width="2048" height="330" alt="tumblr_b8c2e2f9523e706a3c27656fc182d23c_dea5e865_2048" src="https://github.com/user-attachments/assets/1931c41d-0835-43df-b9b9-476becc57d6e" />
+<img width="1920" height="897" alt="tumblr_9a052ad0e36aea0d57edd540dc5d5dbf_fb2e4fe2_2048" src="https://github.com/user-attachments/assets/50972d62-f784-4bec-b673-198b8e808602" />
+
 
