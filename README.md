@@ -22,6 +22,10 @@
 > $\color{Magenta}{\textsf{ppl who like muzicalz int with me plzplzplzplzplz ily}}$
 
 
+> $\color{Magenta}{\textsf{One extra thing, i DONT vent. even i am even crying anyway, dont expect me to vent, no one takez me zeriouzly anyway.}}$
+<sup> $\color{Magenta}{\textsf{/kinda aimed}}$ <\sup>
+
+
 
 
 ![tumblr_bea739a8f05a33c8d29591101a8def40_df611f2d_2048](https://github.com/user-attachments/assets/c990196a-bd2e-439a-99dc-182ea1257574)
